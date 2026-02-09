@@ -1,4 +1,3 @@
-+ [carolinadesouzaribeiro2003@gmail.com](mailto:carolinadesouzaribeiro2003@gmail.com)
 + [linkedin.com/in/carolina-de-souza-ribeiro-57537933a](https://linkedin.com/in/carolina-de-souza-ribeiro-57537933a)
 + [lattes.cnpq.br/8859452343418372](https://lattes.cnpq.br/8859452343418372)
 
