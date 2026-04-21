@@ -1,5 +1,6 @@
 + [linkedin.com/in/carolina-de-souza-ribeiro-57537933a](https://linkedin.com/in/carolina-de-souza-ribeiro-57537933a)
 + [lattes.cnpq.br/8859452343418372](https://lattes.cnpq.br/8859452343418372)
++ [artstation.com/carolinadesouzaribeiro](https://www.artstation.com/carolinadesouzaribeiro)
 
 
 With good academic performance and willingness to learn, I excel in my dedication and persistence towards problem-solving and development, as well as a couple of creative abilities, primarily in the form of 3D modelling and rendering.
